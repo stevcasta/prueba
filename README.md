@@ -1,1 +1,2 @@
 en proceso
+para ajecutar
